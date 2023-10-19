@@ -1,0 +1,1 @@
+# Politicaljuggernauts_AQuantitative_Analysis_of_candidatesinthe2019_loksabhaelections_NM2023TMID06953
